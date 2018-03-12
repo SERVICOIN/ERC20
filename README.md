@@ -1,5 +1,5 @@
 # S-A-cryptocurrency
-
+![alt text](https://user-images.githubusercontent.com/31994058/36934151-152bc30e-1eb3-11e8-9e56-4355f4916cd7.png)
 SERVIECONOMY INC.
 
 It is a real company legally constituted.
